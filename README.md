@@ -46,6 +46,8 @@ If you don't give up you haven't failed.
 
 Sometimes you'll spend more time rationalizing why you don't need to do something than it would take to do it.
 
+...
+
 Humans are animals. But some animals are humans.
 
 Things are changing all the time.
@@ -117,6 +119,28 @@ Don't condemn what other people like.
 Have few things and get good stuff.
 
 You don't make better decisions while tired.
+
+...
+
+Everyone is insecure.
+
+You'd be surprised how much you can learn and remember.
+
+More knowledge means more patterns you can perceive.
+
+Double-checking is almost always worthwhile.
+
+Sometimes keeping quiet when you make a mistake is best.
+
+Sometimes rest is the right answer.
+
+It's hard to fall asleep while anticipating something.
+
+Don't run from who you are. Enjoy every step. Enjoy being yourself.
+
+Let go of your fear. It's not that serious.
+
+You learn when you teach.
 
 ...
 
