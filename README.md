@@ -12,6 +12,20 @@ devved by Jess Cummins
 
 Learning: it's a lifestyle.
 
+To remember is to rewrite history.
+
+Once you've started you're almost done.
+
+Everyone believes the evidence is on their side.
+
+Your future self thanks you for every second spent improving yourself.
+
+What are you trying to do?
+
+Chase away pain by partitioning your mind and body.
+
+Your life starts now, not tomorrow, and not in the past. Live it the way you want.
+
 ...
 
 Sometimes you have to really mess things up to straighten them out.
