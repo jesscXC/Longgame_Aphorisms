@@ -68,6 +68,24 @@ The clothing you wear affects your own view of yourself.
 
 Before initiating any project, list why you want it to succeed, why you will put in the hard work day after day when the going gets tough.
 
+Obviously a god can exist outside our perceivable universe just as we can exist outside a simulation we run.
+
+Put less food on your plate and eat more deliberately. It will be better.
+
+Your preconceptions of the world can hide opportunity from you.
+
+Act to live interesting stories.
+
+Words are the most powerful things on Earth: they hold the power to inspire and embolden, to weaken and shatter.
+
+Fashion may not be immediately functional, but it gives impressions to others; that is the function.
+
+Mix the old ways and the new ways to find more.
+
+There is so much beauty, if you would only look.
+
+You are the challenges you've faced.
+
 ...
 
 Sometimes you have to really mess things up to straighten them out.
