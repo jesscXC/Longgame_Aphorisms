@@ -86,9 +86,37 @@ There is so much beauty, if you would only look.
 
 You are the challenges you've faced.
 
+Be flexible yet remember the original plan.
+
+Break the ice by stirring the air with words. Silence is freezing.
+
+Any action counts more than nonexistent perfect action.
+
+The number of pages in a book does not necessarily correlate to the impact it can have on you.
+
 ...
 
+When the perfect doesn't happen, the good is best.
+
+A messy space attracts disorder.
+
+The potential for creative entities is unbounded.
+
+There are always other ways that work.
+
+If other people can do it, you can learn to do it.
+
 Sometimes you have to really mess things up to straighten them out.
+
+There are so many good things.
+
+Anything you write is a poem.
+
+Don't condemn what other people like.
+
+Have few things and get good stuff.
+
+You don't make better decisions while tired.
 
 ...
 
