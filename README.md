@@ -212,5 +212,35 @@ When you let go, that's when it will come to you.
 
 ...
 
+It's as soon as your limited ego gives up that the power of the universe reveals itself.
+
+The more you learn, the more you realize it's a complicated issue.
+
+There is already so much known, yet so much more to know.
+
+You don't learn about yourself when you copy others. You learn about yourself when you create anew.
+
+It's amazing how old the world really is.
+
+In everything there is good and bad.
+
+Culture is human insight into experience.
+
+Something funny can always be said.
+
+It's all a learning experience.
+
+The wise accept knowledge from all, even the young.
+
+Keep in mind where people are coming from.
+
+We are the mistakes we learn from.
+
+Life lives on ever higher levels of complexity of action.
+
+...
+
+
+...
 (more to be published)
 
