@@ -148,6 +148,50 @@ Healing cannot be forced.
 
 When worried, carve out and identify the issue. Write things you can do about it, and things you can't.
 
+Support local companies? No, support good companies.
+
+Learn something new.
+
+It's funny when people talk like they know what they're talking about.
+
+How good you are is how things go when they aren't perfect.
+
+We love people for what they bring out in us.
+
+Catch the wind and you'll go further.
+
+Mystery is the entity in control of our simulation.
+
+World peace is composed of many individual pieces.
+
+When there are constant problems within your core the constant reflection blocks your view of the outside world.
+
+It's not where you live but how you live.
+
+There is a subtle pleasure in experiencing the bad.
+
+Cushion the blows with a pillow of serenity.
+
+...
+
+You can tell a lot about a person if you look.
+
+Most people are alone.
+
+The less freedom you have, the scarier it is.
+
+If no one will know who you are, experiment and be someone different.
+
+Life gets more complex.
+
+The small collect and the big grow off from it.
+
+It's easier to break something than fix it.
+
+There are always great things to experience.
+
+Rules are meant to be sensible and self-aware.
+
 ...
 
 (more to be published)
