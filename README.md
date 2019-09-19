@@ -252,5 +252,27 @@ Keep the goal in mind or you'll tend to optimize locally.
 
 ...
 
+Pain changes your action.
+
+You don't have to impress anyone.
+
+You don't have to do anything.
+
+Be sensitive to others if you want them to be sensitive to you.
+
+You want people you admire to admire you.
+
+To change things you must take them as they are.
+
+Sometimes helping people hurts yourself.
+
+Who are the best around you?
+
+You must give what is wanted to get what is wanted.
+
+Problems can be tied in with multiple levels of themselves.
+
+...
+
 (more to be published)
 
