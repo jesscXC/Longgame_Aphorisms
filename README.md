@@ -274,5 +274,31 @@ Problems can be tied in with multiple levels of themselves.
 
 ...
 
+We get wrapped up in the stories we believe, even when they're lies.
+
+The rules change depending on the place.
+
+What is love, to you?
+
+You can get hurt when you try to fit in to other's ideas of how things should be done.
+
+Is it better to advance the cutting edge or popularize the state of the art?
+
+When you can fly, falling isn't scary.
+
+Poor needn't mean dirty.
+
+Keep in mind that you are skilled.
+
+Anything you do is by definition the right thing.
+
+Encourage the irrepressible 'huh'.
+
+Human communication is improved by adding more senses.
+
+Confidence is a skill.
+
+...
+
 (more to be published)
 
