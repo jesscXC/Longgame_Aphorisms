@@ -240,7 +240,17 @@ Life lives on ever higher levels of complexity of action.
 
 ...
 
+Work with what you have.
+
+Start with the shortest understandable path that will work.
+
+Why continue doing something if you aren't getting the results you want?
+
+Make time to work on yourself, not just in yourself.
+
+Keep the goal in mind or you'll tend to optimize locally.
 
 ...
+
 (more to be published)
 
