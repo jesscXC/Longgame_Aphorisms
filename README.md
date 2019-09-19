@@ -192,6 +192,24 @@ There are always great things to experience.
 
 Rules are meant to be sensible and self-aware.
 
+Proceed through how you feel; don't fight it.
+
+Dress like a peaceful person to be at peace.
+
+Observe what makes a person.
+
+Don't make people feel bad about themselves.
+
+Keep your eye on the short-term and long-term and the medium-term will take care of itself.
+
+Apples and oranges are different. They can only be compared when an external value system is applied.
+
+Going to a museum is like treasure hunting for curiosities.
+
+You can tell a lot about a person by the way they leave their bed.
+
+When you let go, that's when it will come to you.
+
 ...
 
 (more to be published)
