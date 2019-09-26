@@ -300,5 +300,72 @@ Confidence is a skill.
 
 ...
 
+We all have our own journeys to travel.
+
+No one owes you anything, and you don't owe anyone else anything.
+
+Whether you think you're happy or you think you're not, you're right.
+
+Intelligence feeds on itself.
+
+Knowledge forms on hooks in memory.
+
+Speed will come.
+
+Enjoy what you have.
+
+The world is very different elsewhere.
+
+Inspiration does not come at the barrel of a gun.
+
+Different people have different priorities.
+
+The feeling of learning is fun.
+
+Attention to detail separates the good from the great.
+
+Feeling good is worth the investment.
+
+Stop worrying and start studying.
+
+Life is a journey.
+
+Just as optimism can be beaten out of you, it can also be beaten in.
+
+You are not superior nor inferior. You are a unique life experience. Live it.
+
+If you focus on directly where the feeling is you can mentally ramp up or down the sensing neurons.
+
+Don't expect people to be different just because you've changed.
+
+Have good things, but don't become attached to them.
+
+To-do lists can help you get more done but can also make you feel like you aren't doing enough.
+
+Don't forget that nothing is sacred and you can always start over.
+
+The lighter your possessions the lighter your spirit.
+
+Redundancy can prevent adaptation.
+
+All things are connected.
+
+Life should get more rewarding as technology improves.
+
+Survey before you start.
+
+Start with a general outline.
+
+There is always more than one way to fix a problem.
+
+Reinforce what will break first.
+
+No interpretation can be both perfect and complete.
+
+The desire to learn often comes from applicability of knowledge.
+
+...
+
+
 (more to be published)
 
