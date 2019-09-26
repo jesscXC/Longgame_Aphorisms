@@ -438,5 +438,63 @@ Force in the right place can move mountains.
 
 ...
 
+The urgent will always be there unless you focus on the important.
+
+Be genuine.
+
+Observe. You don't have to make an effort to love if you just observe.
+
+Bring yourself into resonance.
+
+Revere mystery. Learn it.
+
+Value differences.
+
+If you were in the same position, you'd do the same thing.
+
+Do what is important.
+
+Combine the technologies.
+
+It's not busywork that makes dreams happen.
+
+See yourself having done it.
+
+Start moving. Build momentum.
+
+The best food is the kind you have when hungry.
+
+You can't rush exercise.
+
+Offer a seamless experience.
+
+Invest your resources in what sticks with you the longest.
+
+It can be as hard to remove things as it is to acquire them.
+
+Take out everything and put back only the best.
+
+Memory predicts.
+
+You shouldn't feel oppressed by your own to-do list.
+
+When you don't know what to do, simplify.
+
+Just a block of text most people won't read.
+
+Most important is the takeaway.
+
+Learning is recognition of patterns.
+
+We learn more from solving harder problems.
+
+When you know it can be done, you try much harder.
+
+Life is a steady evolution of applying little tricks and tips.
+
+You can break new ground. You have broken new ground.
+
+...
+
 (more to be published)
 
