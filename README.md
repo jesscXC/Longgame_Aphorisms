@@ -366,6 +366,77 @@ The desire to learn often comes from applicability of knowledge.
 
 ...
 
+To change how you feel, change how you interpret your experience.
+
+There is more than one road to success.
+
+Whatever you choose is the right answer.
+
+Treat the cause not the symptom.
+
+See how much you can do without.
+
+You're rich if you aren't worrying.
+
+When reading, comprehension is the goal, not speed.
+
+You can only cut so many corners before what you're doing loses all meaning.
+
+Don't undersell yourself.
+
+Wait until the question is finished before answering.
+
+Don't feel embarrassed; it doesn't matter.
+
+More choice can lead to more regrets.
+
+Communication is a hard problem.
+
+If you aren't earnest and willing to be wrong, you definitely will be.
+
+Mentoring is just as important as access to education.
+
+Love.
+
+Writing solves more problems than just thinking.
+
+Don't care if people stare.
+
+Stand up for how you feel.
+
+Everything is understandable.
+
+When you think it all the way through, very little things matter.
+
+Don't succumb to pressure that your life must be a certain way by a certain time.
+
+Enjoy the moment. Smile.
+
+Breathe deeply.
+
+A contradiction is not a refutation.
+
+Be patient.
+
+Don't repeat things unless you are confident they are true.
+
+You can't beat a person into submission with facts, you must lead them on their own terms.
+
+You must create, not just learn.
+
+Know the rules so you can break them for effect.
+
+It's more beautiful after it's rained.
+
+You're not the first person with this problem.
+
+Your potential can never be lived up to.
+
+You must earn your inner peace.
+
+Force in the right place can move mountains.
+
+...
 
 (more to be published)
 
