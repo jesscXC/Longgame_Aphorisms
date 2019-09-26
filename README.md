@@ -496,5 +496,67 @@ You can break new ground. You have broken new ground.
 
 ...
 
+The more rushed you feel the less you accomplish.
+
+Wind makes strong branches.
+
+You are a player in a game.
+
+Never underestimate the power of time.
+
+Comfort traps you with inaction.
+
+You have to act to find out how hard something really is.
+
+Small doubt can bring down big arguments.
+
+Break down your assumptions about life. What do you want?
+
+You do not exist; only perceptions exist.
+
+Don't try to do it all at once. Separate it.
+
+The cook feeds the activity of the day.
+
+The shorter the feedback loop, the faster the correction.
+
+If your lens is ugly, everything looks bad.
+
+Why believe disempowering ideas?
+
+Being sick is a part of life.
+
+Be thorough.
+
+Do the work. Reap the rewards.
+
+There is always more than one chance.
+
+Deal with others as they are.
+
+Focus on the long-term results.
+
+Focus on the process.
+
+It's okay how you feel.
+
+What have you learned?
+
+Eating is messy. Life is messy.
+
+You already have the tools you need.
+
+You can always start over.
+
+Learn and have fun.
+
+The future is only hopeless once you give up.
+
+Show appreciation for who they are, not what they do.
+
+It's healthy to not care, sometimes.
+
+...
+
 (more to be published)
 
