@@ -628,5 +628,93 @@ Regularly take a high-level view.
 
 ...
 
+Don't condemn what other people like.
+
+The harder you work the stronger you'll get.
+
+Listen to yourself. You know in your heart what's right.
+
+Your ancestors do not determine your skills but they do influence your preferences.
+
+What's the most impactful thing you could do right now?
+
+It's when you can let go that you have true control.
+
+Have few things and get good stuff.
+
+Make speed, not haste.
+
+You don't make better decisions while tired.
+
+If there is a way, you don't find it by saying there is no way.
+
+Verbalize the little things you appreciate.
+
+Be thankful for the people you make smile.
+
+What do you have to do first?
+
+There is no level cap on consciousness.
+
+Learn how to go.
+
+It's the cycle up and down that adds depth.
+
+Give yourself time.
+
+You are young.
+
+Consider your ancestor.
+
+There are people better than you, but you aren't them. There are people worse than you, but you aren't them.
+
+Why choose to believe that you can't explain?
+
+You'd be surprised how much you can learn and remember.
+
+More knowledge means more patterns you can perceive.
+
+Double-checking is almost always worthwhile.
+
+Don't do things you know you shouldn't do.
+
+Sometimes keeping quiet when you make a mistake is best.
+
+Do what you are afraid of; that's how you grow.
+
+Don't be surprised that others are not sophisticated in the same way as you.
+
+It's all in your head.
+
+Language is barrier, but also a bridge.
+
+Treat a low-status job as a step for a goal and you will approach it in a different way.
+
+If you don't speak the language, you're a foreigner.
+
+Easy and quick fixes are few and far between.
+
+All the little pieces count.
+
+Pay attention to what you're doing.
+
+Sometimes rest is the right answer.
+
+Gossip releases emotion but cultivates bad feelings.
+
+Sometimes a digression is not productive.
+
+You become used to things.
+
+It's hard to fall asleep while anticipating something.
+
+You can't hurry learning.
+
+Don't run from who you are. Enjoy every step. Enjoy being yourself.
+
+If you've done it before you know you can do it.
+
+...
+
 (more to be published)
 
