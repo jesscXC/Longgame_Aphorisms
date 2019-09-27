@@ -584,5 +584,49 @@ Look forward. Nothing in your past is as great.
 
 ...
 
+The more honest you can be with yourself the faster you can grow.
+
+You must give up completely before you will see the path leading out.
+
+It's never good the first time through. That's just the scaffolding.
+
+The issue is not that you immediately solve the problem, but that you stick with it until you do.
+
+If other people can do it, you can learn to do it.
+
+Often when doing hard work a part of us craves interruptions. We want the easy way out.
+
+Seek to understand those who disagree. Your own case will improve.
+
+There's always more than one way to make it work.
+
+The problem is not that someone will steal your idea but that you won't be able to get it off the ground yourself.
+
+The world will never end.
+
+You can't rush toward success.
+
+Record what works.
+
+Refraining from gossip is a long-term strategy.
+
+You get more of what you pay attention to.
+
+Sometimes you changing gives the perception of others having changed.
+
+The smallest things can degrade the experience.
+
+Little things compound.
+
+Fit your stories to the interests of the audience.
+
+Your desires adapt to the world you find yourself in.
+
+Your preconceptions control your thoughts.
+
+Regularly take a high-level view.
+
+...
+
 (more to be published)
 
