@@ -558,5 +558,31 @@ It's healthy to not care, sometimes.
 
 ...
 
+Your interpretation is never the whole story.
+
+Maybe you're dreaming now?
+
+Know that you can understand it, when you care enough.
+
+Understand the problem and the solutions will appear.
+
+You pay attention to the urgent by paying attention to the important.
+
+Don't fear what can't hurt.
+
+There's always more than one way to describe something.
+
+Every little bit helps.
+
+You are what you eat.
+
+You can learn whatever you are willing to invest time into.
+
+Be constructive, not defensive.
+
+Look forward. Nothing in your past is as great.
+
+...
+
 (more to be published)
 
