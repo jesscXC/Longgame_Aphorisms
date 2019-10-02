@@ -768,5 +768,39 @@ If you can imagine it, it can become your reality.
 
 ...
 
+It's not about pushing yourself. It's about embracing yourself.
+
+Even when you fail, you succeed when you learn.
+
+We can visualize anything with enough practice.
+
+Practice love.
+
+Meditation is not a waste of time. It clarifies the mind.
+
+Rest is part of life.
+
+People like to help people.
+
+When we give gratitude, we receive joy.
+
+You already have what you need to be happy.
+
+Desire to live.
+
+You've got to build better tools in order to think higher thoughts.
+
+You'll always feel poor if you always spend more than you have.
+
+All of reality is symbolism.
+
+Practice smiling.
+
+One candy bar in the hand is worth two in the belly.
+
+It is wise to be unworrying, but foolish to be uncaring.
+
+...
+
 (more to be published)
 
