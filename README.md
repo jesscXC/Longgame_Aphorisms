@@ -716,5 +716,37 @@ If you've done it before you know you can do it.
 
 ...
 
+You are dreaming.
+
+Let go of your fear. It's not that serious.
+
+You learn when you teach.
+
+Don't be embarrassed---be proud.
+
+Do not saturate yourself with busywork.
+
+Sometimes no glasses is better than foggy glasses.
+
+You don't know what you like until you try different things.
+
+Would you rather receive love or cause love?
+
+It can always be more detailed.
+
+No action chains you like the belief that you have to act as you did in the past.
+
+Healing requires time.
+
+Humans have small footprints, but their feet carry their brain.
+
+Try enough failures and you'll stumble onto success.
+
+Even the statement "everything is at it should be" presumes it could be otherwise.
+
+It is understandable if you invest the time to understand it.
+
+...
+
 (more to be published)
 
