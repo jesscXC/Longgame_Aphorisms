@@ -748,5 +748,25 @@ It is understandable if you invest the time to understand it.
 
 ...
 
+What you want out of life will change as you grow.
+
+Keep people in the loop so they feel more in control.
+
+Anything you want you can have, as long as you are willing to transcend what's stopping you.
+
+Life is lighter without baggage.
+
+The most powerful tool a human has is the ability to imagine something better.
+
+The only way to find your way out is to get lost and learn.
+
+Metaphors are tools of thought.
+
+Imagine someone without fear. Imagine not imagining.
+
+If you can imagine it, it can become your reality.
+
+...
+
 (more to be published)
 
