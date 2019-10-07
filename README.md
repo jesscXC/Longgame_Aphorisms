@@ -802,5 +802,24 @@ It is wise to be unworrying, but foolish to be uncaring.
 
 ...
 
-(more to be published)
+Remember who loves you.
 
+Everything you see around you is in the imagination of something greater.
+
+There is no story _in_ your head. You are the story.
+
+Stretching is good for the soul.
+
+You'll know if it's working if you test your work.
+
+It feels good to rest after you exercise.
+
+Life isn't just the exciting.
+
+Don't rush into marriage with either an idea or a person.
+
+If you have to work for it, it's sweeter.
+
+...
+
+(more to be published)
