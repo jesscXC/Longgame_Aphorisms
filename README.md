@@ -822,4 +822,20 @@ If you have to work for it, it's sweeter.
 
 ...
 
+Being good is its own reward.
+
+Look for patterns.
+
+Dogs don't like to get yelled at.
+
+Don't be afraid to ask questions.
+
+There are people smarter than you. Remember that they can learn from you.
+
+The world is getting richer.
+
+Given an infinity of numbers, there are an infinity of patterns. There is no completion of knowledge.
+
+...
+
 (more to be published)
