@@ -878,4 +878,42 @@ We are machines.
 
 ...
 
+Jump in puddles.
+
+Cultivate simple tastes.
+
+Life's problems exist in the head. Work on that.
+
+Even the sad parts of life are life.
+
+There are no limits to knowledge.
+
+Not dancing doesn't make you cooler than dancing even when you don't know how.
+
+There's always more to learn.
+
+You are not your identity.
+
+There is always more to learn.
+
+If you have a great idea, go do it.
+
+Consider life a marathon, not a sprint. Enjoy the journey.
+
+Don't let perfection get in the way of releasing.
+
+You can read something, visualize it, then have a dream about it.
+
+How you do anything is how you do everything.
+
+Don't worry about what you don't know how to do yet. Just do what you can.
+
+You have to learn the basics first.
+
+Programming is like math that you can play with.
+
+Just keep throwing yourself at the problem!
+
+...
+
 (more to be published)
