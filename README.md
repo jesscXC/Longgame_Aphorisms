@@ -838,4 +838,44 @@ Given an infinity of numbers, there are an infinity of patterns. There is no com
 
 ...
 
+Breathe. Take a deep breath.
+
+Patterns are digital at the most fundamental level, not fuzzy.
+
+Don't compare yourself to your neighbors and call yourself poor. Compare yourself to your ancestors and call yourself rich beyond imagination.
+
+Don't accept people who don't treat you right.
+
+The wise see further implications.
+
+Don't stop the blessings.
+
+The more you know the less you feel you know.
+
+Don't talk about people behind their back.
+
+It works out in the end.
+
+It's the hard times that cause growth.
+
+Team up.
+
+You don't have to understand the world for it to be fun.
+
+Close your eyes and breathe. Listen to the breath.
+
+Train for the moment.
+
+Video games are predictions for the future.
+
+Learn every language you can.
+
+What's important is the rapidity with which you adapt to change.
+
+Love conquers fear.
+
+We are machines.
+
+...
+
 (more to be published)
