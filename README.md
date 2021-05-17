@@ -1,8 +1,9 @@
-# jPhorisms: Before the Above
-<br>
-devved by Jess Cummins
-<br>
+
+# Longgame Aphorisms
+
 [NoLiesPlease.com](http://noliesplease.com)
+<br>
+devved by Jess Cummins (@jesscxc)
 
 <hr>
 
